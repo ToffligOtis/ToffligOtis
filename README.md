@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ToffligOtis
-- 👀 I’m interested in about pornography
-- 🌱 I’m currently learning about pornography
-- 💞️ I’m looking to collaborate on pornography
+- 👀 I’m interested in stuff
+- 🌱 I’m currently learning lego
+- 💞️ I’m looking to collaborate i dont want to collaborate
 - 📫 How to reach me: you dont
 
 <!---
